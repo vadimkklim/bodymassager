@@ -38,4 +38,4 @@
 
 ### Support or Contact 
 
-bizi.apps@mail.ru
+bombing.apps@gmail.com
